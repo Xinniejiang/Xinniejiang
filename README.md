@@ -1,5 +1,5 @@
-- ❤️ Hi, I’m Xinniejiang or just Xin or Darl(ing)
-- ❤️ I’m interested in playing game nad kpop
+- ❤️ Hi, I’m Xinniejiang or just Xin or Darl
+- ❤️ I’m interested in playing game and kpop
 - ❤️ I’m currently learning how to play chess
 - ❤️ I’m looking to collaborate on Valorant and kpop
 - ❤️ How to reach me @youebi_ling on insta and discord!
